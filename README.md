@@ -29,7 +29,7 @@
 4天才政治.pdf  
 5感官冥想.pdf  
 6克隆技术与未来世界.pdf  
-![github](https://github.com/maitreyarael/maitreyarael/blob/main/open-xiazai.png "github") 
+![github](https://github.com/maitreyarael/maitreyarael/blob/main/x.png "github") 
   
 国际主站：  （早就被墙-需要VPN）
 https://rael.org  
