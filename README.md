@@ -1,9 +1,9 @@
 # maitreyarael  
-# 末法时代，西方诞生的弥勒佛，权威解答，真相在这里  
+# [末法时代](http://www.maitreyarael.org/cn/greet.htm)，[西方诞生的弥勒佛](http://www.maitreyarael.org/cn/greet.htm)，权威解答，真相在这里  
 
 # 佛经里预告说，佛纪三千年将有新的弥勒诞生在西方。  
 我把文章转载到全世界最大的开源社区就是为了告知大家西方的弥勒已经来到我们身边；  
-告知所有佛教徒，国际雷尔利安的创始人，精神领袖[使者雷尔]就是西方诞生的弥勒。  
+告知所有佛教徒，国际雷尔利安的创始人，精神领袖[使者雷尔](http://rael.org)就是西方诞生的弥勒。  
 
 # 说明：  
 根据雷尔在1974年出版的书籍《Le Livre qui dit la vérité》（中文名：来自外星人的讯息），他于1973年12月13日在法国中部克莱蒙费朗的拉索拉山，一个死火山口，  
@@ -11,24 +11,24 @@
 他为了向全世界传播这道讯息，于1974年3月13日抱着尝试的心态上了法国知名节目‘大棋盘’（ le Grand echiquier）讲述这段非凡经历，  
 尽管主持人和观众感到不可置信和嘲笑，他仍然在该节目主持人 Jacques Chancel的赞助下出版了该事件的书籍，  
 并随后参加了另外两个法国的电视节目专访， 同年9月19日在巴黎举行的第一次公开说明会，吸引了2000多人。   
-不久之后，他创立了“MADECH协会”（欢迎造物主耶洛因人运动）集合了有意愿帮助他完成艰巨任务的人们，就是后来的雷尔运动。 到1974年底，该协会有170名成员。  
+不久之后，他创立了“MADECH协会”（欢迎造物主耶洛因人运动）集合了有意愿帮助他完成艰巨任务的人们，就是后来的[雷尔运动](http://rael.org)。 到1974年底，该协会有170名成员。  
 
 根据第二本书，他在1975年10月7日这一晚被外星人邀请到他们的星球上作客，并要求传达给人类第二道讯息，包含‘圣经’启示录的涵义，  
 并揭露他实际上是外星人（真实身份为‘圣经’上的耶和华）利用人工受孕所产下的孩子，  
 并与耶稣有血缘关系（同父异母的兄弟，并且称呼耶稣为长兄），尽管大众对这一说法抱持质疑态度。  
 
-1975年正式在瑞士日内瓦创立了雷尔运动。之后，巡访世界各地，通过演讲以及报刊，广播，电视采访，正致力于传播讯息。  
+1975年正式在瑞士日内瓦创立了[雷尔运动](http://rael.org)。之后，巡访世界各地，通过演讲以及报刊，广播，电视采访，正致力于传播讯息。  
 
 筹备建造迎接耶洛因归来的耶洛因大使馆（第三圣殿）。资金已经解决，最关键的是大使馆的土地。目前，还没有得到任何国家的许可。  
 雷尔耶洛因大使馆所在地，将成为新的耶路撒冷，大使馆所在国，在未来千年里将成为世界的政治经济文化中心。  
 
 # 讯息(/经书)放在这里方便下载======弥勒的书籍下载:    
 [1来自外星人的讯息.pdf](https://raw.githubusercontent.com/maitreyarael/maitreyarael/master/1来自外星人的讯息.pdf)  
-2迎接外星人.pdf   
-3觉醒之路.pdf  
-4天才政治.pdf  
-5感官冥想.pdf  
-6克隆技术与未来世界.pdf  
+[2迎接外星人.pdf](https://raw.githubusercontent.com/maitreyarael/maitreyarael/master/2迎接外星人.pdf)  
+[3觉醒之路.pdf](https://raw.githubusercontent.com/maitreyarael/maitreyarael/master/3觉醒之路.pdf)
+[4天才政治.pdf](https://raw.githubusercontent.com/maitreyarael/maitreyarael/master/4天才政治.pdf)
+[5感官冥想.pdf](https://raw.githubusercontent.com/maitreyarael/maitreyarael/master/5感官冥想.pdf)
+[6克隆技术与未来世界.pdf](https://raw.githubusercontent.com/maitreyarael/maitreyarael/master/6克隆技术与未来世界.pdf)
 
   
 # 国际主站：  （早就被墙-需要VPN）
@@ -43,11 +43,11 @@ https://elohimembassy.org/
 # CCTV百家讲坛官方频道 谈弥勒佛真相，有视频可以看 第20070927期  
 https://tv.cctv.com/2013/11/02/VIDE1383362474443967.shtml  
 讲师：复旦大学教授 钱文忠  
-根据佛教的说法：末法时代，弥勒降世，广传佛法，救人于水火之中，因此他也叫未来佛  
+根据佛教的说法：[末法时代](http://www.maitreyarael.org/cn/greet.htm)，[弥勒降世](http://www.maitreyarael.org/cn/greet.htm)，广传佛法，救人于水火之中，因此他也叫[未来佛](http://www.maitreyarael.org/cn/greet.htm)  
 
-弥勒信仰就是：救世信仰，弥勒是未来佛，是未来的救世主  
+弥勒信仰就是：救世信仰，[弥勒是未来佛]，是未来的救世主  
 复旦大学钱文忠教授讲：西方不是指印度，而是西方国家，  
-弥勒佛=未来佛=如来佛，百科全书说了：未来就是如来的意思，  
+[弥勒佛](http://www.maitreyarael.org/cn/greet.htm)=[未来佛](http://www.maitreyarael.org/cn/greet.htm)=[如来佛](http://www.maitreyarael.org/cn/greet.htm)，百科全书说了：未来就是如来的意思，  
 
 
 # 来自外星人的讯息中的一句话  
@@ -74,8 +74,8 @@ https://tv.cctv.com/2013/11/02/VIDE1383362474443967.shtml
 对于您所说的一切，落后愚昧的人是根本无法理解的。
 这就是一种唯有那些睁亮眼睛的人才能意识到的迹象──启示时代到来的迹象。  
 
-中华大地的人尊称为：弥勒佛  
-犹太人称呼：弥赛亚  
-现在称之为：使者雷尔，弥勒是尊称，雷尔是姓名  
+中华大地的人尊称为：[弥勒佛](http://www.maitreyarael.org/cn/greet.htm)  
+犹太人称呼：[弥赛亚](http://www.maitreyarael.org/cn/greet.htm)  
+现在称之为：[使者雷尔](http://www.maitreyarael.org/cn/greet.htm)，弥勒是尊称，雷尔是姓名  
 有关弥勒佛的详细网站在这里，要研究的可以去这里  
 http://www.maitreyarael.org/cn/greet.htm  
