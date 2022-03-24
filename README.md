@@ -23,15 +23,13 @@
 雷尔耶洛因大使馆所在地，将成为新的耶路撒冷，大使馆所在国，在未来千年里将成为世界的政治经济文化中心。  
 
 # 讯息(/经书)放在这里方便下载======弥勒的书籍下载:    
-1来自外星人的讯息.pdf  
+[1来自外星人的讯息.pdf](https://raw.githubusercontent.com/maitreyarael/maitreyarael/master/1来自外星人的讯息.pdf)  
 2迎接外星人.pdf   
 3觉醒之路.pdf  
 4天才政治.pdf  
 5感官冥想.pdf  
 6克隆技术与未来世界.pdf  
 
-# 下载教程，不会可以看这里  
-![github](https://github.com/maitreyarael/maitreyarael/blob/main/x.png "github") 
   
 # 国际主站：  （早就被墙-需要VPN）
 https://rael.org  
