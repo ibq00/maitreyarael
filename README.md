@@ -25,10 +25,10 @@
 # 讯息(/经书)放在这里方便下载======弥勒的书籍下载:    
 [1来自外星人的讯息.pdf](https://raw.githubusercontent.com/maitreyarael/maitreyarael/master/1来自外星人的讯息.pdf)  
 [2迎接外星人.pdf](https://raw.githubusercontent.com/maitreyarael/maitreyarael/master/2迎接外星人.pdf)  
-[3觉醒之路.pdf](https://raw.githubusercontent.com/maitreyarael/maitreyarael/master/3觉醒之路.pdf)
-[4天才政治.pdf](https://raw.githubusercontent.com/maitreyarael/maitreyarael/master/4天才政治.pdf)
-[5感官冥想.pdf](https://raw.githubusercontent.com/maitreyarael/maitreyarael/master/5感官冥想.pdf)
-[6克隆技术与未来世界.pdf](https://raw.githubusercontent.com/maitreyarael/maitreyarael/master/6克隆技术与未来世界.pdf)
+[3觉醒之路.pdf](https://raw.githubusercontent.com/maitreyarael/maitreyarael/master/3觉醒之路.pdf)  
+[4天才政治.pdf](https://raw.githubusercontent.com/maitreyarael/maitreyarael/master/4天才政治.pdf)  
+[5感官冥想.pdf](https://raw.githubusercontent.com/maitreyarael/maitreyarael/master/5感官冥想.pdf)  
+[6克隆技术与未来世界.pdf](https://raw.githubusercontent.com/maitreyarael/maitreyarael/master/6克隆技术与未来世界.pdf)  
 
   
 # 国际主站：  （早就被墙-需要VPN）
